@@ -1,2 +1,1 @@
-# My reading list
-# My reading list
+# My favorite books
